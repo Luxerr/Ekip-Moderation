@@ -3,4 +3,4 @@ Ekip Moderation Botu
 
 
 
-40 Star'da editledigim ekip moderation paylaşacağım.
+30 Star'da editledigim ekip moderation paylaşacağım.
